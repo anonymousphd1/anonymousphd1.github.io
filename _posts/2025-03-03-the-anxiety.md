@@ -14,3 +14,4 @@ Now I am in the second year of my phD studies. Don't ask me how I am feeling rig
 Again the anxiety hits me. But anxiety again can be my friend as a reminder to finish my PhD no matter what. What I can do is to keep moving forward and believe in myself. Whenever I feel stuck, I usually do my hobby, either art or piano. Or even taking a break a day off. After that, I can continue to code again and keep wondering in the overwhelming information and experiment.
 
 I almost didn't finish my master's before due to my toxic supervisor, but I believe I can finish my PhD!
+
